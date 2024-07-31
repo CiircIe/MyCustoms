@@ -4,11 +4,7 @@ customs ive done hehh
 
 ![](https://i.ibb.co/0cH4zT9/download.webp) 
 
-2 wip - 
+![](https://i.ibb.co/bFvm54D/Untitled56-20240731163315.webp)
 
-candy theme
-
-moodboard
-
-(hyena sorta)
+![](https://i.ibb.co/cJMSYGS/Untitled57-20240731163147.webp)
 
